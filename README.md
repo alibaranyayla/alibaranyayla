@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @alibaranyayla
+- 👀 I’m interested in QA and testing
+- 🌱 I’m currently learning Java
+- 📫 How to reach me via mail alibaranyyl@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i really dont like to use capital letters also i love all about languages 
